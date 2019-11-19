@@ -2,4 +2,3 @@
 # 筋トレしろよな
 # ほげたろう
 # くぁwせdrftgyふじこlp
-#fooooooooooooo
